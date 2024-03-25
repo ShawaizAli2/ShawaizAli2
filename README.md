@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ShawaizAli2
+- 👀 I’m interested in Datascience, Graphic Designing and ofcourse python
+- 🌱 I’m currently learning Datascience
+- 💞️ I’m looking to collaborate on Coding
+- 📫 How to reach me: shawaizali250@gmail.com
+- 😄 Pronouns: he/him (i am straight)
+- ⚡ Fun fact: Never ate a burger, pizza, sushi, burrito
